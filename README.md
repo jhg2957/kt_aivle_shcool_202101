@@ -1,0 +1,1 @@
+# kt_aivle_shcool_202101
